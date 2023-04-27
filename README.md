@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+A bit about me ... 
 <!--
 **michelleberry/michelleberry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+- 📚 Studies at: University of Guelph
+- 🧶 Loves: Knitting
+- 💔 Used to love (and still kinda): Painting, drawing, rollerskating
+- 🎱 Wants to get better at: DJing, Weightlifting
+- ❌ Hates: Pickles
+- 🏄‍♀️ This summer i'm: Interning at Snapchat in Santa Monica!!
