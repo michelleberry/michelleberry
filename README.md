@@ -19,4 +19,5 @@ Here are some ideas to get you started:
 - 💔 Used to love (and still kinda): Painting, drawing, rollerskating
 - 🎱 Wants to get better at: DJing, Weightlifting
 - ❌ Hates: Pickles
+- 🐈 Hotel: trivago
 - 🏄‍♀️ This summer i'm: Interning at Snapchat in Santa Monica!!
