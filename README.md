@@ -17,7 +17,6 @@ Here are some ideas to get you started:
 - 📚 Studies at: University of Guelph
 - 🧶 Loves: Knitting
 - 💔 Used to love (and still kinda): Painting, drawing, rollerskating
-- 🎱 Wants to get better at: DJing, Weightlifting
+- 🎱 Wants to get better at: DJing
 - ❌ Hates: Pickles
-- 🐈 Hotel: trivago
-- 🏄‍♀️ This summer i'm: Interning at Snapchat in Santa Monica!!
+- 🏄‍♀️ This summer i'm: gonna build a gaming PC, learn unity + graphics stuff, & look for a new grad job!
