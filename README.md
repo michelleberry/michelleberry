@@ -19,4 +19,3 @@ Here are some ideas to get you started:
 - 💔 Used to love (and still kinda): Painting, drawing, rollerskating
 - 🎱 Wants to get better at: DJing
 - ❌ Hates: Pickles
-- 🏄‍♀️ This summer i'm: gonna build a gaming PC, learn unity + graphics stuff, & look for a new grad job!
